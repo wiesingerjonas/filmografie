@@ -88,6 +88,8 @@ Making of:	<https://www.youtube.com/watch?v=g_lMDYkMFGk>
   <img src=".\bilder\presspause2.jpg" width="32%" /> 
   <img src=".\bilder\presspause3.jpg" width="32%" /> 
 </p>
+zum Film: <https://www.youtube.com/watch?v=XXHj03gttl4>
+
 ## Musicalwaves Wels - Kleiner Horrorladen
 
 Im September wurde ich von den Musicalwaves Wels kontaktiert, ob ich ihre Inszenierung vom bekannten Musical "Der kleine Horrorladen" aufnehmen könnte. Ich habe ihnen neben den 2 Aufnahmen des gesamten Stücks auch ein Making of und einen Trailer gemacht.
